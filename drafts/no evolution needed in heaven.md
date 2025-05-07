@@ -1,0 +1,1 @@
+in bible, there is no evolution. In ironic way, because there is no evolution needed in heaven.
